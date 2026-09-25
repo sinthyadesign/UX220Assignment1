@@ -1,1 +1,7 @@
-hello from article 1
+# Family 
+
+https://www.newsband.in/uploads/blog_main_img/2acf84a807ac5f4b24c9410b1e8248fc_1.jpg
+
+Five years from now, I want to be able to tell my classmate that I always chose my family, no matter what I was chasing for myself. I want to remember the birthdays, get-togethers, and even those easy, quiet nights we had together.
+
+As I start doing more on my own, I still want to help my family out whenever they need me. If I manage to create a good life for myself and stay close to them, that’s something I’ll definitely feel proud of. 
