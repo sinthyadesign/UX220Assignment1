@@ -1,4 +1,4 @@
-#Educational Goals and Learning Outcomes
+Educational Goals and Learning Outcomes
 
 My five-year goals really tie into what Moeller, Theiler, and Wu (2012) talk about with goal setting and student achievement. They found that when students actually set goals, their grades improved—a pretty straightforward connection. Their study also had students keep a portfolio, where they reflected on their work, set new goals, and tracked what they'd accomplished. That hits home for me because, at Laurier Brantford, I’m aiming to graduate with a UX Design degree, build a solid portfolio, and sharpen the skills I'll need for my career.
 
